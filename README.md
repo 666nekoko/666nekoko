@@ -8,9 +8,7 @@
 ![imageedit_1_8911949296](https://user-images.githubusercontent.com/93416695/190963030-41805d36-0984-448a-8a25-6cf9ff3bd6ec.png)
 
 
-*† - hidoi*
-
-*† - https://youtu.be/FVireP2Vhks*
+*† - nekoko*
 
 *† - 18*
 
@@ -18,9 +16,11 @@
 
 *† - native (im cree)*
 
+*† - usually idling or asleep IRL. im extremely anxious so i probably won't respond to messages that arent whispers, sorry.*
+
 *† - [kinlist](https://niiue.carrd.co/)*
 
-*† - usually idling or asleep IRL. im extremely anxious so i probably won't respond to messages that arent whispers, sorry.*
+*† - https://youtu.be/FVireP2Vhks*
 
 
 
