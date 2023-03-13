@@ -51,7 +51,7 @@
 
 *touhou*
 
-*MOTHER series/cogdis*
+*MOTHER series/fangames*
 
 *world of horror*
 
